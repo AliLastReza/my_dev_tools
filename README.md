@@ -6,6 +6,8 @@
 
 - [موزیک های وایت نویز](#موزیک-های-وایت-نویز)
 
-### موزیک های وایت نویز
-- [Studying White Noise | Focus on Homework, Test Prep, School | 10 Hours Study Sound](https://www.youtube.com/watch?v=yLOM8R6lbzg)
+## ابزارها
 
+### موزیک های وایت نویز
+
+- [Studying White Noise | Focus on Homework, Test Prep, School | 10 Hours Study Sound](https://www.youtube.com/watch?v=yLOM8R6lbzg)
